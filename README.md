@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **gekansh01@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1VkGPvpqgWgHUwmGo64gdgr_F87_IRty1/view](https://drive.google.com/file/d/1VkGPvpqgWgHUwmGo64gdgr_F87_IRty1/view)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1VkGPvpqgWgHUwmGo64gdgr_F87_IRty1/view](https://drive.google.com/file/d/1aEFQ-kw_Wto89Z1odY0A7LgGClNa9oNe/view)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
